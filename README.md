@@ -1,0 +1,1 @@
+This is a recipe of Vegetable Rice . The ingredients file is for the ingredients. The recipe file is for the recipe to make the Vegetable Rice
