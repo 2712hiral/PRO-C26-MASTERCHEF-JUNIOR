@@ -14,7 +14,7 @@
    13. Mix well.
    14. Put 1tsp Kitchen King Masala.
    15. Mix well.
-   16. Put Soak Rice.
+   16. Put Soaked Rice.
    17. Put 2 cups of Water.
    18. Put half lemon juice.
    19. Cover the lid & make 2 whistle.
